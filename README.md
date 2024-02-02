@@ -27,6 +27,4 @@ Now, let's find the answers to two specific questions:
 1. **Who owns the Zebra?**
 2. **Who drinks juice?**
 
-Feel free to use your logical reasoning skills to solve these questions based on the given clues. Share your solution and thought process in the discussion or comments section.
 
-Good luck, and enjoy solving the Zebra Puzzle!
